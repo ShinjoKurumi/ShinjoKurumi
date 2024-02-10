@@ -5,7 +5,7 @@ Founder & Site admin of RainCandy Technology</br>
 BetaArchive: [ZhengXiaoAi](https://www.betaarchive.com/forum/memberlist.php?mode=viewprofile&u=28966)[!]<br>
 BetaWorld 百科：[ShinjoKurumi](https://www.betaworld.cn/用户:ShinjoKurumi)</br>
 哔哩哔哩: [新条久留美](https://space.bilibili.com/4107193)</br>
-Discord: [ShinjoKurumi](https://discord.com/users/554218895029043220)<br>
+Discord: [ShinjoKurumi](https://discord.com/users/554218895029043220)[!]<br>
 Doki Chinese Club：[新条久留美](https://forum.monika.love/u/6401)</br>
 卡饭论坛: [彼岸弥香](https://bbs.kafan.cn/space-uid-1186158.html)[!]</br>
 My Digital Life Forums：[HiganYaka](https://forums.mydigitallife.net/members/higanyaka.1319626/)[!]</br>
