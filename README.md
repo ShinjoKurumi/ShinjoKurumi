@@ -2,12 +2,14 @@
 Founder & Site admin of RainCandy Technology</br>
 雨糖科技创始人 & 站长
 # Find me on...
-BetaArchive: [ZhengXiaoAi](https://www.betaarchive.com/forum/memberlist.php?mode=viewprofile&u=28966)[!]<br>
+AcFun: [花和美香](https://www.acfun.cn/u/1535287)</br>
+BetaArchive: [ZhengXiaoAi](https://www.betaarchive.com/forum/memberlist.php?mode=viewprofile&u=28966)[!]</br>
 哔哩哔哩: [新条久留美](https://space.bilibili.com/4107193)</br>
 Discord: [ShinjoKurumi](https://discord.com/users/554218895029043220)[!]<br>
 卡饭论坛: [彼岸弥香](https://bbs.kafan.cn/space-uid-1186158.html)[!]</br>
 My Digital Life Forums：[HiganYaka](https://forums.mydigitallife.net/members/higanyaka.1319626/)[!]</br>
 deepin 官方论坛：[新条久留美](https://bbs.deepin.org/user/250665)</br>
+Steam: [新条久留美](https://steamcommunity.com/id/ShinjoKurumi/)</br>
 统信 UOS 官方论坛: [新条久留美](https://bbs.chinauos.com/user/236626)</br>
 微博: [RainCandy久留美](https://weibo.com/shinjokurumi)</br>
 我学会声会影: [彼岸弥香](http://www.hy345.com/space-uid-168997.html)</br>
