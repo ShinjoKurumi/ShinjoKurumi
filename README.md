@@ -12,7 +12,6 @@ BetaWorld 百科：[ShinjoKurumi](https://www.betaworld.cn/%E7%94%A8%E6%88%B7:Sh
 Discord: [ShinjoKurumi](https://discord.com/users/554218895029043220)[!]<br>
 My Digital Life Forums：[HiganYaka](https://forums.mydigitallife.net/members/higanyaka.1319626/)[!]</br>
 卡饭论坛: [彼岸弥香](https://bbs.kafan.cn/space-uid-1186158.html)[!]</br>
-Steam: [新条久留美](https://steamcommunity.com/id/ShinjoKurumi/)</br>
 微博: [Heartbeat新条](https://weibo.com/shinjokurumi)</br>
 我学会声会影: [彼岸弥香](http://www.hy345.com/space-uid-168997.html)</br>
 远景论坛：[永远的梦境](https://i.pcbeta.com/space-uid-2097106.html)[!]</br>
