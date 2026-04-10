@@ -2,8 +2,8 @@
 Founder & Site admin of RainCandy Technology</br>
 雨糖科技创始人 & 站长
 
-A tech nerd who loves all things magical and wants to become kawaii, aiming to become a hardcore expert.</br>
-喜欢一切神奇事物的、想要变得可爱的见习技术宅，目标是成为硬核大佬。
+A tech nerd who loves all things magical, aiming to become a hardcore expert.</br>
+喜欢一切神奇事物的见习技术宅，目标是成为硬核大佬。
 
 # Find me on...
 AcFun: [花和美香](https://www.acfun.cn/u/1535287)</br>
