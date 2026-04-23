@@ -7,10 +7,10 @@ A tech nerd who loves all things magical, aiming to become a hardcore expert.</b
 
 # Find me on...
 AcFun: [花和美香](https://www.acfun.cn/u/1535287)</br>
-BetaWorld 百科：[ShinjoKurumi](https://www.betaworld.cn/%E7%94%A8%E6%88%B7:ShinjoKurumi)</br>
 哔哩哔哩: [新条久留美](https://space.bilibili.com/4107193)</br>
 Discord: [ShinjoKurumi](https://discord.com/users/554218895029043220)[!]<br>
 My Digital Life Forums：[HiganYaka](https://forums.mydigitallife.net/members/higanyaka.1319626/)[!]</br>
+niconico: [ShinjoKurumi](https://nicovideo.jp/user/60499470)</br>
 卡饭论坛: [彼岸弥香](https://bbs.kafan.cn/space-uid-1186158.html)[!]</br>
 微博: [Heartbeat新条](https://weibo.com/shinjokurumi)</br>
 我学会声会影: [彼岸弥香](http://www.hy345.com/space-uid-168997.html)</br>
